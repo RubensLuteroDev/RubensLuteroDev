@@ -24,5 +24,6 @@ Sou um Analista de Gestão de Projetos e Operações com mais de 10 anos de expe
 
 - **Email:** rubens.lutero@gmail.com
 - **LinkedIn:** [Rubens Lutero](https://www.linkedin.com/in/rubens-lutero)
+- **Site:** https://rubenslutero.studio/
 
 Estou sempre aberto a novas oportunidades e desafios. Vamos nos conectar!
